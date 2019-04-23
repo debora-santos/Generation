@@ -6,12 +6,15 @@ Quebrando a cabeça nos estudos e esboço do roteiro.
 
 ![fd10e187-6caa-4314-9e51-9b016402cff1](https://user-images.githubusercontent.com/49887714/56543961-6602fa80-6549-11e9-9772-d0405387aa42.JPG)
 
+É muito entusiasmo e motivação! o/ 
+
 ## Mãos na massa ~~ou melhor, no giz pastel~~!
 
 Bora comer um pastelzinho na feira? Ou só explicar o que é a internet pra vó mesmo?
 
 ![41b4eb1a-0bcb-4003-ad63-1a5c35c88b1c](https://user-images.githubusercontent.com/49887714/56544404-ccd4e380-654a-11e9-9101-e8f415828f37.JPG)
 
+Todos os desenhos foram feitos com giz pastel em papel kraft :D
 
 ## Setup do espaço ~~e correria para emprestar as coisas~~
 
