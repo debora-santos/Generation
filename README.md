@@ -33,6 +33,6 @@ Parabéns aos selecionados! rsrs
 
 ## Agora é a hora....
 
-Link do vídeo: www...
+Link do vídeo: https://youtu.be/jkfJ85eOSmE
 
 Obrigada [@rnnsilveira](https://github.com/rnnsilveira) pela ajuda aqui no GitHub :)
